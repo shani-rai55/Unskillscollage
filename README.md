@@ -1,3 +1,3 @@
-# <h1>UnSkillscollage</h1>
+# UnSkillscollage
 <br>
 Author by<br> shani rai
