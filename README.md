@@ -1,3 +1,3 @@
 # Unskillscollage
 <br>
-Author by- shani rai
+Author by<br> shani rai
